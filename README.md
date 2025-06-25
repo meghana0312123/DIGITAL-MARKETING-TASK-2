@@ -97,4 +97,5 @@ This strategy is designed to **position Gucci as a leader in digital luxury stor
 
 ## OUTPUT
 
+[Codtech task 2.docx](https://github.com/user-attachments/files/20907887/Codtech.task.2.docx)
 
